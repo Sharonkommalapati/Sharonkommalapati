@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Sharonkommalapati
-- 👀 I’m interested in ...in doing business,riding,
+- 👀 I’m interested in ...in doing business,riding bikes and exploring the new things
 - 🌱 I’m currently learning ...data science
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...via phone 9912874070 and via mail sharonkommalapati48@gamil.com
